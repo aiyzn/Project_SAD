@@ -10,4 +10,7 @@
 ### Lem
 
 ### Eve Simbulan
+- 15 years old studying at PSHS SMC
+- Grade 9 - Sodium
+- I love listening to music, singing, and watching series <3
 
