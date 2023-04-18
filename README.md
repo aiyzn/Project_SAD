@@ -6,6 +6,9 @@
 ## Our members are 
 
 ### Ashley 
+- 14 year-old studying at PSHS SMC
+- I enjoy shopping, listening to music and watching movies! 
+- Overthinking test scores has also become a hobby of mine...
 
 ### Lem
 - 16 year-old studying at PSHS SMC
