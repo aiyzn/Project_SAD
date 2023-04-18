@@ -1,13 +1,13 @@
 # Project_SAD
 
-hi<3<3<3 
-we are project sad! :))
+## hi<3<3<3 
+## we are project sad! :))
 
-Our members are 
+### Our members are 
 
-Ashley 
+#### Ashley 
 
-Lem
+#### Lem
 
-Eve Simbulan
+#### Eve Simbulan
 
