@@ -6,6 +6,8 @@
 ## Our members are 
 
 ### Ashley 
+- 14 years old studying at PSHS SMC 
+- I love going shopping, watching to movies, and listening to music!
 
 ### Lem
 
