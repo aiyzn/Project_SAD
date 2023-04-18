@@ -1,8 +1,12 @@
 # Project_SAD
 
-## hi<3<3<3 
-###### we are depressed and mentally ill! :))
+hi<3<3<3 
+we are project sad! :))
 
-__miss ko na siya uwu__
+Our members are 
 
-FLOPTROPICA RULES 
+Ashley 
+
+Lem
+
+Eve
